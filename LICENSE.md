@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pump.fun sniper bot with rare pump.fun sniper bot | liquidity-sniping + sandwich-attack-execution. Featuring liquidity-sniping and sandwich-attack-execution, it's
 
 
 
